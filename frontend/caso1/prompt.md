@@ -61,3 +61,31 @@ Expresionismo Alemán + Surf de California + Fenómenos Paranormales
 Minimalismo Escandinavo + Lucha Libre Mexicana + Estética de Acuario
 
 Glam Rock + Automatización Industrial + Jardinería Victoriana
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
